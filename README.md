@@ -37,8 +37,8 @@ CS undergrad specializing in AI automation and workflow systems — basically fi
 
 ## 📬 Reach me
 
-- 💼 https://www.linkedin.com/in/benett-bobby-849290271/ ← update this
-- 📧 benett.c.bobby@gmail.com ← update this
+- 💼 https://www.linkedin.com/in/benett-bobby-849290271/
+- 📧 benett.c.bobby@gmail.com
 
 ---
 
